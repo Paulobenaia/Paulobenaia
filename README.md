@@ -1,4 +1,4 @@
-##Olá! eu sou o paulobeania 👋
+##Olá! eu sou o paulobenaia 👋
 
 **Paulobenaia/Paulobenaia** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
